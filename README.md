@@ -37,7 +37,7 @@
 
 ---
 # My discord server
-https://discord.gg/vnDfPRrRh8
+https://discord.domiko.dev
 
 ---
 
